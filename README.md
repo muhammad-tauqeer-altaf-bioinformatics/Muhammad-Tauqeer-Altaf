@@ -36,6 +36,8 @@ To grow into a skilled bioinformatician by combining biological knowledge, progr
 ## 🤝 Let's Connect
 
 - LinkedIn: (https://www.linkedin.com/in/muhammad-tauqeer-altaf-bioinformatics/)
+- Facebook: (https://facebook.com/Muhammad.tauqeer.altaf.bioinformatics/)
+- Instagram: (https://www.instagram.com/muhammad_tauqeer_altaf_bioinfo/)
 - Email: tauqeeraltaf9920@gmail.com
 
 ---
